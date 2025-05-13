@@ -7,4 +7,4 @@ Hello my name is Max Ptero’dactyl Aves Plumage Wren. I have long brown feather
 
 ![Bewick's Wren by Steve Zamek](wren-SteveZamek.jpg)
 
-(Picture of a bewick's wren by Steve Zamek)
+(Picture of a Bewick's wren [by Steve Zamek](https://www.featherlightphoto.com/bewicks-wren/h52289c7e))
